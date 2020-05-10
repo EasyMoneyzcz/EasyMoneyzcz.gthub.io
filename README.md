@@ -1,0 +1,1 @@
+# EasyMoneyzcz.gthub.io
